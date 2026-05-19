@@ -1,4 +1,4 @@
-# 
+# updated CCleaner para PC addons é o melhor CCleaner para PC addons com Fancy Zones e remocao de aplicativos da Windows Store. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
